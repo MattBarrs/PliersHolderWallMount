@@ -2,7 +2,8 @@
 Pliers Holder Wall Mount 
 
 Thingiverse: https://www.thingiverse.com/thing:7290684
-Makerworld:  
+Makerworld: https://makerworld.com/en/models/2369463-pliers-wall-mount-holder#profileId-2593278  
+
 
 
 ![PXL_20260131_150419064](https://github.com/user-attachments/assets/e2df100f-2dc5-4deb-9460-69e5fb8eb56c)
